@@ -1,1 +1,0 @@
-# naresh-kakarla.github.io
